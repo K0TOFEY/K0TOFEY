@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @K0TOFEY
 - 👀 I’m interested in games
-- 🌱 I’m currently learning at school
+- 🌱 I’m currently learning at University
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me discord: K0T0FEY
 - 😄 Pronouns: He
